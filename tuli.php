@@ -1,0 +1,1 @@
+przytula mocno uzytkownika

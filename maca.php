@@ -1,0 +1,1 @@
+maca po cycuszkach uzytkownika

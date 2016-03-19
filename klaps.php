@@ -1,0 +1,1 @@
+klepie po pupie:) uzytkownika

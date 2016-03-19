@@ -1,0 +1,1 @@
+zaprasza na lody czekoladowe uzytkownika
